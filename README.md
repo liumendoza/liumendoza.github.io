@@ -1,3 +1,3 @@
-# liumendoza.github.io
+# Liu Mendoza Perez
 
-I am a a Ph.D. candidate in Economics at University of Houston.
+I am a Ph.D. candidate in Economics at the University of Houston. My research focuses on macroeconomics and international finance, with an emphasis on emerging market economies.
